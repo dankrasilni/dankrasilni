@@ -1,11 +1,11 @@
 - 👋 Hi, I’m @dankrasilnisadxzc
 - 👀 I’m interested in ...lj
 - 🌱 I’m currently lasdearning ...sdsadasd
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to cmmjollaborate on ...
 - 📫 How to reach me ...vhyiads
 dadczxcsfdfsadsffd
 <!---bvcfqw21пsd
---->gjcsad
+--->gjcsadbb
 csvbав
 bfdbdfbvxad
 sadasd
