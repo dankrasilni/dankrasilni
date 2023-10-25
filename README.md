@@ -2,7 +2,7 @@
 - 👀 I’m interested in ..asdzvcxv.ljxdfgfgdxіфв
 - 🌱 I’m currently lasdecxzcarning ..sxzc.sdsadasd
 - 💞️ I’m looking to cmmjollaboradhgffte sadonvvbаівмс ...cxvxcvxcv,khsdfdsdfdsad
-- 📫 How to reach me ...vhyiadsaassdf
+- 📫 How to reach me ...vhyiadsaassdfhg
 dadczxcsfdfsadsfxbcvsdfascxzasdxv
 sadasdzxccvx
 fdsdfsfds
