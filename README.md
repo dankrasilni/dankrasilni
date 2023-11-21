@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @dankrasibcvbcvblfdnisadsadsxdfsdhghgjfsdfdsfsdasdzzc,mnghjc ghвфівфівіфвhjkb
+- 👋 Hi, I’m @dankrasibcvbcvblfdnisadsadsxdbmfsdhghgjfsdfdsfsdasdzzc,mnghjc ghвфівфівіфвhjkb
 - 👀 I’m interested in ..assadxzcdzvcxv.ljxdfgfgdxіфв
 - 🌱 I’m currently lasdecxzcasлиdfdrniдлgffоng ..sxzc.sdsadasd
 - 💞️ I’m looking to cmmjollaboradhgffte sadonvvbаівмс ...cxvxcvxcv,khdsadsdfdsddascxfdsadfdsf
